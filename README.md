@@ -4,5 +4,7 @@ https://teams.microsoft.com/l/message/48:notes/1728644748180?context=%7B%22conte
 ![Uploading InShot_20241011_165608597-ezgif.com-gif-to-mp4-converter.gif…]()
 
 
-![InShot_20241011_165608597-ezgif com-gif-to-mp4-converter](https://github.com/user-attachments/assets/a5d628fb-5331-4719-8451-6942afbccd59)
+![InShot_20241011_172915394](https://github.com/user-attachments/assets/b7daca6f-27e2-40e5-a8eb-384973d069a7)
+
+
 
